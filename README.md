@@ -7,4 +7,4 @@ Having to keep a growth mindset means always staying focused
 
 how to keep a Growth Mindset is to always think about how you're going to reach your goals
 
-[Githubprofile](Github.com/IAlstonI)
+[Githubprofile](https://github.com/IAlstonI)
